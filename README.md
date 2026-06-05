@@ -52,11 +52,12 @@ Players can enjoy a box load of benefits by using promo codes offered by Roobet.
 
 **Related Articles:**
 
-* [Duelbits referral code 2025](https://github.com/csgocodes/duelbits-promo-code)
-* [Gamdom affiliate code 2025](https://github.com/csgocodes/gamdom-promo-code)
-* [Datdrop promo code 2025](https://github.com/csgocodes/datdrop-promo-code)
-* [CSGO500 promo code 2025](https://github.com/csgocodes/csgo500-promo-code)
-* [Bc.Game promo code 2025](https://github.com/csgocodes/bcgame-promo-code)
+* [Duelbits referral code 2026](https://github.com/csgocodes/duelbits-promo-code)
+* [Gamdom affiliate code 2026](https://github.com/csgocodes/gamdom-promo-code)
+* [Datdrop promo code 2026](https://github.com/csgocodes/datdrop-promo-code)
+* [CSGO500 promo code 2026](https://github.com/csgocodes/csgo500-promo-code)
+* [Bc.Game promo code 2026](https://github.com/csgocodes/bcgame-promo-code)
+* [Shuffle promo code 2026](https://github.com/csgocodes/shuffle-promo-code)
 
 ## Conclusion
 
